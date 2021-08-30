@@ -3,5 +3,5 @@
 
 [ZHIQIANG XU's Cover letter.pdf](https://github.com/josesoyyo/resume.github.io/files/7077111/ZHIQIANG.XU.s.Cover.letter.pdf)
 
-https://zhiqiangxu.ucraft.site/
+[ZHIQIANG XU's Personal website](https://zhiqiangxu.ucraft.site/)
 
